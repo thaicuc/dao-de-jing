@@ -1,6 +1,6 @@
-# Chapter 1: The Tao
+# Chapter 1: The Dao
 
-The Tao that can be described is not the eternal Tao.  
+The Dao that can be described is not the eternal Dao.  
 The name that can be spoken of is not the eternal name.  
 The nameless is the origin of Heaven and Earth.  
 The named is the Mother of all things.  
